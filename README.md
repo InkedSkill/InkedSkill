@@ -37,6 +37,4 @@ Ton souvenir éclaire mon chemin,
 Dans mon cœur, à jamais,  
 Étoile jumelle, mon doux refrain.
 
----
 
-J'espère que cette petite composition te plaît. Si tu veux ajuster les paroles ou la mélodie d'une manière particulière, n'hésite pas à me le dire.
